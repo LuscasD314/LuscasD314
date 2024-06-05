@@ -12,4 +12,4 @@ Utilizo esse espaço para minha organização e compartilhamento dos meus projet
 
 - @luscas_d0
 
-- ![](https://media.tenor.com/HCBzlYdjSd4AAAAM/cow.gif)
+- ![](https://media.tenor.com/y1ZATz5wB6cAAAAM/troll-face.gif)
